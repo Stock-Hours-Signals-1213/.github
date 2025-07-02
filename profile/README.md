@@ -29,7 +29,7 @@ Stock Hours Signals Chat is a premium trading community founded by Nour Atta, po
 
 ---
 
-[Join Stock Hours Signals Chat Now](https://kelexbawz.com/stock-hours)
+[Join Stock Hours Signals Chat Now](https://whop.com/skillset-solutions?a=kelechienwere1234)
 
 ---
 
@@ -47,7 +47,7 @@ Stock Hours offers several membership tiers to cater to different needs
 
 ---
 
-[Join Stock Hours VIP Bundle Now](https://kelexbawz.com/stock-hours)
+[Join Stock Hours VIP Bundle Now](https://whop.com/skillset-solutions?a=kelechienwere1234)
 
 ---
 
@@ -75,7 +75,7 @@ Stock Hours is designed for
 
 ---
 
-[Join Stock Hours Signals Chat Now](https://kelexbawz.com/stock-hours)
+[Join Stock Hours Signals Chat Now](https://whop.com/skillset-solutions?a=kelechienwere1234)
 
 ---
 
@@ -103,7 +103,7 @@ Many members have shared positive experiences
 
 ---
 
-[Join Stock Hours VIP Bundle Now](https://kelexbawz.com/stock-hours)
+[Join Stock Hours VIP Bundle Now](https://whop.com/skillset-solutions?a=kelechienwere1234)
 
 ---
 
@@ -127,6 +127,6 @@ Stock Hours Signals Chat offers a robust platform for traders seeking real-time 
 
 ---
 
-[Join Stock Hours Signals Chat Now](https://kelexbawz.com/stock-hours)
+[Join Stock Hours Signals Chat Now](https://whop.com/skillset-solutions?a=kelechienwere1234)
 
 ---
